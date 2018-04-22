@@ -36,10 +36,9 @@
 
 ### 贊助：
 
-（歐盟LOGO）歐洲民主人權機制（European Instrument for Democracy and
+* 歐洲民主人權機制（European Instrument for Democracy and
 Human rights, EIDHR）
-
-（開放社會基金會 LOGO）開放社會基金會
+* 開放社會基金會
 
 ### 「看見被害人」被害人工作小組簡介
 
